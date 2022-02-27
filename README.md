@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adistyyy
 - 👀 I’m interested in Social Politics 
-- 🌱 I’m currently being a student IR at Muhammadiyah University Of Yogyakarta,Indonesia.
+- 🌱 I’m currently being a IR student at Muhammadiyah University Of Yogyakarta,Indonesia.
 - 💞️ I’m looking to collaborate on Editor design, I'm still beginner.
 - 📫 How to reach me on social media
 
